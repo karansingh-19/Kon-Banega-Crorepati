@@ -1,2 +1,2 @@
 # Kon-Banega-Crorepati
-KBC Test
+Welcome to Kon Banega Crorepati, join and win cash prizes !
